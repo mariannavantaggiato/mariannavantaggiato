@@ -1,6 +1,7 @@
 ## Hi, I'm Marianna! 🤖⭐
 
-💻Computer Science Student at University of Bari <br/>
+🎓Bachelor's Degree in Computer Science ar University or Bari <br/> 
+💻CyberSecurity Student at University of Bari <br/>
 😶‍🌫️Posting some of my work here <br/>
 📇You can find me here: https://linktr.ee/mariannavantaggiato </br>
 
